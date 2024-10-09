@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber security
 - 🌱 I’m currently learning ml and ai
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 
+- 📫 How to reach me : souhaylaarr@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i play chess
 
